@@ -1,2 +1,2 @@
 # Hello-world
-My first repository.
+Kill me please.
